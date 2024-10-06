@@ -1,2 +1,2 @@
 # CodSoft-Internship
-I am Ekta trivedi do internship in Codsoft so I am completed all 3 Task in FIGMA plateform.
+I am Ekta trivedi doing an internship in Codsoft so I have completed all 3 Tasks in the FIGMA platform.
